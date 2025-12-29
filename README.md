@@ -1,7 +1,7 @@
 ## 关于我
 
 🔗 **社交媒体**：
-- 个人修图网站：[嘉游智绘站]((https://jayou.art/))
+- 个人修图网站：[嘉游智绘站](https://jayou.art/)
 - 小红书：[我的小红书主页](https://www.xiaohongshu.com/user/profile/5ea7045f000000000100392f?xsec_token=YB5MthxfIcpOUGNP-qg9KmROK6DQ-JCgViHFq7AYeoS10=&xsec_source=app_share&xhsshare=CopyLink&shareRedId=N0tDNzM5OU82NzUyOTgwNjY0OTc3PjhP&apptime=1766990612&share_id=32d9474ff45b45599a8b42dba3ff2206)
 
 📬 **联系我**：
